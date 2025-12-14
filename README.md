@@ -1,0 +1,2 @@
+# Pifagor-tearemasi.
+Pifagor tearemasi.
